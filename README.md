@@ -1,3 +1,1 @@
 # AybukeYalcinAnaokulu
-# AybukeYalcinAnaokulu
-"# AybukeYalcinAnaokulu" 
